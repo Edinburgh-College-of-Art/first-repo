@@ -2,7 +2,7 @@
 
 # Chapter 1
 
-in my younger and more fomrative years my father hagevb me some adivce....
+In my younger and more formative years my father gave me some advice, which I've been truning over in my mind ever since.
 
 # final Chapter
 
